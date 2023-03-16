@@ -1,2 +1,0 @@
-# Sneakers-Product-Card
- 
